@@ -11,3 +11,5 @@ Os meus hobbies são:
 - Jogar videogame
 - Ouvir música
 - Assistir futebol
+- Assistir Casos de Família
+- Comer leite em pó puro
