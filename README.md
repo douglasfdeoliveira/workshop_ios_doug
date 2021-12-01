@@ -11,3 +11,5 @@ Os meus hobbies são:
 - Jogar videogame
 - Ouvir música
 - Assistir futebol
+- Assistir o canal do Porta dos Fundos
+- Comer pão de queijo
